@@ -1,4 +1,4 @@
 ItJustWorks
 ===========
 
-Content is voice. Speak with focus. Achieve your vision.
+Content is voice. Speak with focus. Innovate vision.
